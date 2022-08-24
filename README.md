@@ -1,2 +1,2 @@
-# paradise
+# my shit gng
 yes
